@@ -46,7 +46,7 @@ A celebration of Basque culture held from Saturday to Saturday during the week o
 
 ## September
 ### Oktoberfest (Germany)
-Round 2?
+September 22 - October 7, 2018.
 
 ### Oregon vs Stanford (Eugene)
 September 22nd
