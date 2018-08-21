@@ -44,9 +44,18 @@ July 24 - August 8, 2020.
 ### Aste Nagusia Festival aka The Great Week (Spain)
 A celebration of Basque culture held from Saturday to Saturday during the week of August 15th. Most notable celebrations are in San Sebastian and Bilbao.
 
+### Dublin / Edinbrugh / Wales / Amsterdam / The French Lakes
+
+### Bali
+
 ## September
+### Bourbon & Beyond Festival (Louisville, Kentucky)
+Headlined by John Mayer, Lenny Kravitz, Robert Plant, and Sting. Septermber 22-23, 2018.
+
 ### Oktoberfest (Germany)
 September 22 - October 7, 2018.
+
+### Albania / Morocco / Zanzibar / Lisbon / Sicily / Peru / Mexico City / Buenos Aires / Japan 
 
 ### Oregon vs Stanford (Eugene)
 September 22nd
