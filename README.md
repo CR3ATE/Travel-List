@@ -69,3 +69,6 @@ November 1st
 
 ### Oregon vs UCLA (Eugene)
 November 3rd
+
+### Oregon @ Saint Mary's (Moraga)
+Women's basketball - November 24th
