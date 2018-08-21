@@ -52,14 +52,14 @@ August 31, 2019 @ AT&T Stadium
 ### Bali
 
 ## Fall
+### Albania / Morocco / Zanzibar / Lisbon / Sicily / Peru / Mexico City / Buenos Aires / Japan 
+
 ## September
 ### Bourbon & Beyond Festival (Louisville, Kentucky)
 Headlined by John Mayer, Lenny Kravitz, Robert Plant, and Sting. Septermber 22-23, 2018.
 
 ### Oktoberfest (Germany)
 September 22 - October 7, 2018.
-
-### Albania / Morocco / Zanzibar / Lisbon / Sicily / Peru / Mexico City / Buenos Aires / Japan 
 
 ### Chick-fil-a Kickoff Game (Atlanta)
 Oregon vs Georgia - September 3, 2022.
