@@ -4,7 +4,7 @@
 
 ### Full Moon Party (Thailand)
 
-### Northern Lights
+### Northern Lights (Iceland / Norway / Finland / Sweden)
 Best seen in remote areas of the northernmost latitudes.
 
 ### Cuba
@@ -44,10 +44,14 @@ July 24 - August 8, 2020.
 ### Aste Nagusia Festival aka The Great Week (Spain)
 A celebration of Basque culture held from Saturday to Saturday during the week of August 15th. Most notable celebrations are in San Sebastian and Bilbao.
 
+### Oregon vs Auburn (Arlington)
+August 31, 2019 @ AT&T Stadium
+
 ### Dublin / Edinbrugh / Wales / Amsterdam / The French Lakes
 
 ### Bali
 
+## Fall
 ## September
 ### Bourbon & Beyond Festival (Louisville, Kentucky)
 Headlined by John Mayer, Lenny Kravitz, Robert Plant, and Sting. Septermber 22-23, 2018.
@@ -56,6 +60,13 @@ Headlined by John Mayer, Lenny Kravitz, Robert Plant, and Sting. Septermber 22-2
 September 22 - October 7, 2018.
 
 ### Albania / Morocco / Zanzibar / Lisbon / Sicily / Peru / Mexico City / Buenos Aires / Japan 
+
+### Chick-fil-a Kickoff Game (Atlanta)
+Oregon vs Georgia - September 3, 2022.
+
+### Oregon vs Ohio State (Eugene / Columbus)
+September 12, 2020 - Eugene
+September 11, 2021 - Columbus
 
 ### Oregon vs Stanford (Eugene)
 September 22nd
