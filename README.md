@@ -66,6 +66,9 @@ September 29th
 ## October
 ### Fleet Week (San Francisco)
 
+### Puerto Rico
+Hurricane Season continues through the end of November but the best surf arrives in late september and continues through the fall.
+
 ### Oregon vs Washington (Eugene)
 October 13th
 
