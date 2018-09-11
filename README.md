@@ -86,6 +86,9 @@ October 13th
 ### Oregon @ Arizona (Tuscon)
 October 27th
 
+### SEMA Show (Las Vegas)
+October 30 - November 2; New Legend will be in attendence
+
 ## November
 ### Dia De Los Muertos (Mexico)
 November 1st
