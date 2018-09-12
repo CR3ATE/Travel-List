@@ -64,6 +64,9 @@ September 22 - October 7, 2018.
 ### Chick-fil-a Kickoff Game (Atlanta)
 Oregon vs Georgia - September 3, 2022.
 
+### World Trade Center (New York City)
+Transit Hub ceiling window may open at 10:28am the same time as the North Tower Collapsed. September 11th.
+
 ### Oregon vs Ohio State (Eugene / Columbus)
 September 12, 2020 - Eugene
 September 11, 2021 - Columbus
