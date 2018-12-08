@@ -61,21 +61,36 @@ Headlined by John Mayer, Lenny Kravitz, Robert Plant, and Sting. Septermber 22-2
 ### Oktoberfest (Germany)
 September 22 - October 7, 2018.
 
-### Chick-fil-a Kickoff Game (Atlanta)
-Oregon vs Georgia - September 3, 2022.
-
-### World Trade Center (New York City)
-Transit Hub ceiling window may open at 10:28am the same time as the North Tower Collapsed. September 11th.
-
 ### Oregon vs Ohio State (Eugene / Columbus)
 September 12, 2020 - Eugene
 September 11, 2021 - Columbus
 
-### Oregon vs Stanford (Eugene)
-September 22nd
+### Chick-fil-a Kickoff Game (Atlanta)
+Oregon vs Georgia - September 3, 2022.
 
-### Oregon @ Cal (Berkeley)
-September 29th
+### Oregon vs Texas Tech (Texas / Eugene)
+September 9, 2023 - Texas
+September 7, 2024 - Eugene
+
+### Oregon vs Hawaii (Eugene / Hawaii)
+September 16, 2023 - Eugene
+September 21, 2024 - Hawaii
+
+### Oregon vs Boise State (Eugene / Idaho)
+September 14, 2024 - Eugene
+September 13, 2025 - Idaho
+
+### World Trade Center (New York City)
+Transit Hub ceiling window may open at 10:28am the same time as the North Tower Collapsed. September 11th.
+
+### Oregon vs Nevada (Eugene)
+September 7th
+
+### Oregon vs Montana (Eugene)
+September 14th
+
+### Oregon @ Stanford (Palo Alto)
+September 21st
 
 ## October
 ### Fleet Week (San Francisco)
@@ -83,11 +98,17 @@ September 29th
 ### Puerto Rico
 Hurricane Season continues through the end of November but the best surf arrives in late september and continues through the fall.
 
-### Oregon vs Washington (Eugene)
-October 13th
+### Oregon vs Cal (Eugene)
+October 5th
 
-### Oregon @ Arizona (Tuscon)
-October 27th
+### Oregon vs Colorado (Eugene)
+October 11th
+
+### Oregon @ Washington (Seattle)
+October 19th
+
+### Oregon vs Washington State (Eugene)
+October 26th
 
 ### SEMA Show (Las Vegas)
 October 30 - November 2; New Legend will be in attendence
@@ -96,8 +117,21 @@ October 30 - November 2; New Legend will be in attendence
 ### Dia De Los Muertos (Mexico)
 November 1st
 
-### Oregon vs UCLA (Eugene)
-November 3rd
+### Oregon at USC (Los Angeles)
+November 2nd
+
+### Oregon vs Arizona (Eugene)
+November 16th
+
+### Oregon at Arizona State (Tempe)
+November 23rd
+
+### Oregon vs Oregon State (Eugene)
+November 30th
 
 ### Oregon @ Saint Mary's (Moraga)
 Women's basketball - November 24th
+
+## December
+### Oregon vs Michigan State (Santa Clara)
+December 31st
