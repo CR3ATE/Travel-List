@@ -21,6 +21,12 @@ One of Colombia's most important folklore celebrations and one of the largest ca
 
 ### March Madness
 
+## April
+### Coachella (Indio)
+
+## May
+### Bay to Breakers (San Francisco)
+
 ## Summer
 ### Croatia
 Shoulder season is best (May-June, September-October). Alternatively, Ultra takes place in mid-July on Split.
