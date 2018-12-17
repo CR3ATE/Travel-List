@@ -42,6 +42,9 @@ European Soccer tournament June - July, 2020.
 "Fallow year" in 2018; tickets go on sale in October 2018 for 2019 festival.
 
 ## July
+### San Fermin Festival (Spain)
+Running of the Bulls
+
 ### Summer Olympics (Tokyo 2020)
 July 24 - August 8, 2020.
 
