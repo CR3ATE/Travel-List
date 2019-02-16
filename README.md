@@ -11,14 +11,17 @@ Best seen in remote areas of the northernmost latitudes.
 Best between December and May.
 
 ## February
+### Havasu Falls Reservation sign-up
+February 1 @ 8am DMT
+
 ### Carnaval de Barranquilla (Colombia)
 One of Colombia's most important folklore celebrations and one of the largest carnivals in the world. Will be held from February 10-13 in 2018.
-
-### Mardi Gras (New Orleans)
 
 ## March
 ### CRSSD Fest (San Diego)
 March 2-3
+
+### Mardi Gras (New Orleans)
 
 ### Pac-12 Tournament (Las Vegas)
 
@@ -49,10 +52,13 @@ Go to Iceland or Sweden where the sun will set around midnight and rise before 3
 ### Copa America (Brazil 2019)
 South American soccer tournament June 6-30, 2019.
 
+### Copa America (USA 2020)
+South American soccer tournament June, 2020.
+
 ### UEFA Euros (Europe 2020)
 European Soccer tournament June - July, 2020.
 
-### Glastonbury Festibal (United Kingdom)
+### Glastonbury Festival (United Kingdom)
 "Fallow year" in 2018; tickets go on sale in October 2018 for 2019 festival.
 
 ## July
