@@ -157,9 +157,5 @@ November 23rd
 ### Oregon vs Oregon State (Eugene)
 November 30th
 
-### Oregon @ Saint Mary's (Moraga)
-Women's basketball - November 24th
-
 ## December
-### Oregon vs Michigan State (Santa Clara)
-December 31st
+
