@@ -111,32 +111,11 @@ September 13, 2025 - Idaho
 ### World Trade Center (New York City)
 Transit Hub ceiling window may open at 10:28am the same time as the North Tower Collapsed. September 11th.
 
-### Oregon vs Nevada (Eugene)
-September 7th
-
-### Oregon vs Montana (Eugene)
-September 14th
-
-### Oregon @ Stanford (Palo Alto)
-September 21st
-
 ## October
 ### Fleet Week (San Francisco)
 
 ### Puerto Rico
 Hurricane Season continues through the end of November but the best surf arrives in late september and continues through the fall.
-
-### Oregon vs Cal (Eugene)
-October 5th
-
-### Oregon vs Colorado (Eugene)
-October 11th
-
-### Oregon @ Washington (Seattle)
-October 19th
-
-### Oregon vs Washington State (Eugene)
-October 26th
 
 ### SEMA Show (Las Vegas)
 October 30 - November 2; New Legend will be in attendence
@@ -144,18 +123,6 @@ October 30 - November 2; New Legend will be in attendence
 ## November
 ### Dia De Los Muertos (Mexico)
 November 1st
-
-### Oregon at USC (Los Angeles)
-November 2nd
-
-### Oregon vs Arizona (Eugene)
-November 16th
-
-### Oregon at Arizona State (Tempe)
-November 23rd
-
-### Oregon vs Oregon State (Eugene)
-November 30th
 
 ## December
 
